@@ -1,2 +1,2 @@
 # Portfolio
-Graphic Desing, Articles.
+Graphic Desing, Articles. Translation.
